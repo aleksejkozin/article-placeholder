@@ -5,7 +5,7 @@ But your click will help to write it.
 Good articles take days or weeks to write.
 So it is very important to choose a topic that people will actually be interested in.
 
-This article hasn’t been written yet. 
+This article hasn't been written yet. 
 But your click was very important: it indicated an interest in the topic. 
 This interest will guide me to write the article.
 
